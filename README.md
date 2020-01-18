@@ -12,4 +12,4 @@
 
 ## 2020年やること整理
 
-![Group 2](https://user-images.githubusercontent.com/33926355/72419192-a6816300-37bf-11ea-9f2c-39578ed165be.png)
+![Group 3](https://user-images.githubusercontent.com/33926355/72662068-894dce00-3a25-11ea-997f-d80976bc8b17.png)
